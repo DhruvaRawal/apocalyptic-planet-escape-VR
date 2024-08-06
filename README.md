@@ -1,2 +1,0 @@
-# ApocalypticPlanetEscape_VR
- 
